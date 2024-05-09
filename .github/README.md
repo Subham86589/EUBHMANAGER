@@ -8,7 +8,7 @@
   <img src="https://github.com/AnonymousX1025/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 𝐆ᴏᴋᴜ ꭙ 𝐏ʀᴏʙᴏᴛ](https://t.me/SUBHHHHHHH07)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 𝐆ᴏᴋᴜ ꭙ 𝐏ʀᴏʙᴏᴛ](https://t.me/BILLA_GANG_NTWK)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
